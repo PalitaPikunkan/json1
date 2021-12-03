@@ -1,1 +1,1 @@
-Palita Pikunakam
+Palita Pikunkan
